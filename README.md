@@ -1,3 +1,3 @@
 # python-new
 
-Fakka dushie
+jullie dikke moeders
